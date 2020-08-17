@@ -1,0 +1,1 @@
+önsöz: `21.11.2004` `Beşiktaş` - `çaykur` `Rizespor` maçı'nın devre arası'nda, kapalı tribün'de çıkan kavga'da bıçaklanan`16` yaşındaki`Cihat Aktaş`, kaldırıldığı`hastane`de`öldü`.Polis, ((karşılaşma sonrası kapalı tribünün çıkışlarını kapatarak) (güvenlik kamerasından tespit ettiği 3 kişiyi)) gözaltına aldı.Gözaltına alınanlardan biri suçunu itiraf etti.
